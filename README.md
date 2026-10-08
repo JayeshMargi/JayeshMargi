@@ -4,7 +4,7 @@
 
 Email Me 👉 ✉️ **[jayeshmargi28@gmail.com](mailto:jayeshmargi28@gmail.com)** For Collaboration/Projects or Anything Else. 😊😊
 # 💫 About Me:
-## About Me :<br><br>👨‍💻 Computer Science Engineer specializing in AI & Machine Learning  <br>🔭 Currently building AI-powered & full-stack applications  <br>🌱 Currently learning advanced Web Development, AI/ML & Software Engineering  <br>🤝 Open to collaborating on interesting Web & AI/ML projects  <br>💬 Ask me about Python, AI/ML, Web Development & my projects  <br>⚡ Fun fact: I love turning ideas into working software 🚀
+## About Me :<br><br>👨‍💻 Computer Science Engineer specializing in AI & Machine Learning  <br>🔭 Currently building AI-powered & full-stack applications  <br>🌱 Currently learning advanced Web Development, AI/ML & Software Engineering  <br>🤝 Open to collaborating on interesting Web & AI/ML projects  <br>💬 Ask me about Python, AI/ML, Web Development & my projects  
 
 
 ## 🌐 Socials:
